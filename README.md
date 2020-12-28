@@ -90,7 +90,7 @@ A depiction of all the events that have happened in 2020. The good, the bad, and
 * Trump nominates a new replacement justice going against tradition
 * US Postal Service Machines taken apart
 * US Postal Service Machines kind of put back together
-* Borat 2 Exposes a whole lot of new racism, and pedophilia.
+* Borat 2 Exposes a whole lot of racism, and pedophilia.
 * There was like a month where Kim Jon Un may be dead? Then came back.
 * Internet Worshipping Kim Yo-Jong. Kim Jon's Sister.
 * Ghislaine Maxwell has a $28.5m Bail
