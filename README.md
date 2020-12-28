@@ -114,5 +114,6 @@ A depiction of all the events that have happened in 2020. The good, the bad, and
 * Potential Evidence of Parallel Universes in Antarctica
 * International Space Station Leaking
 * Sent some Astronauts to Space
+* Christmas Day Bombing in Nashville
 * Bitcoin hits $27,000
 * New Strands of Covid
