@@ -1,5 +1,5 @@
-# 2020-Nutshell
-A depiction of all the events that have happened in 2020.
+# 2020 in a Nutshell
+A depiction of all the events that have happened in 2020. The good, the bad, and the ugly.
 
 * Australia on Fire
 * US Kills Iranian Commander and almost causes WW3
